@@ -1,0 +1,1 @@
+Goldilocks goes into a hut which she isn't supposed to, there she eats porridge and sleep in 3 different beds until she finds one that is just right.
