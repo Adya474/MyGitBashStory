@@ -1,1 +1,1 @@
-Goldilocks goes into a hut which she isn't supposed to, there she eats porridge and sleep in 3 different beds until she finds one that is just right.
+Goldilocks goes into a hut which she isn't supposed to, there she sleeps in 3 different beds until she finds one that is just right. She also eats 3 types of porridges one too hot, one too cold and one just right.
